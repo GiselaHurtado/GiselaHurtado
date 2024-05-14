@@ -1,16 +1,20 @@
-### Hi there 👋
+### Hi there 👋 I´m Gisela S. Hurtado 🧡
 
-<!--
-**GiselaHurtado/GiselaHurtado** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+This is my fav Mantra: 
+### ✨ Always lively for new adventures: new homeland, new profession.✨
+In Argentina I graduated as a Psychologist 🧠
+Currently, in Spain I am actively participating in a Full Stack development Bootcamp with Factoria F5 (850 hours.) 🥰 ✨
 
-Here are some ideas to get you started:
+### About me:
+* 👋 Hi, I’m @GiselaHurtado
+* 👀 I’m interested in software development and the IT world.
+* 🌱 I’m currently learning full stack web development and I love it!
+* 💞️ I’m looking to collaborate on interesting full stack web developer projects.
+* 📫 How to reach me by linkedin https://l1nk.dev/6RKZZ
+* 😄 Pronouns: her
+* ⚡ Fun fact: Did you know that bees are able to recognize human faces? One study showed that bees can learn and remember facial patterns, even distinguishing between different expressions. 🐝👀💥🤯
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### 📫 Connect with me
+in/gisela-hurtado-ela11ian
+
+### Github stats 
