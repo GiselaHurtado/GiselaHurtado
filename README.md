@@ -15,6 +15,6 @@ Currently, in Spain I am actively participating in a Full Stack development Boot
 * ⚡ Fun fact: Did you know that bees are able to recognize human faces? One study showed that bees can learn and remember facial patterns, even distinguishing between different expressions. 🐝👀💥🤯
 
 ### 📫 Connect with me
-in/gisela-hurtado-ela11ian
+www.linkedin.com/in/gisela-hurtado-ela11ian
 
 ### Github stats 
