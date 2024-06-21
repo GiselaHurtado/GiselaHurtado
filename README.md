@@ -1,6 +1,5 @@
 
-![github-header-image](https://github.com/GiselaHurtado/GiselaHurtado/assets/168914320/a58b4910-883d-4f82-bb9f-0966eff86cdc)
-
+![github-header-image (2)](https://github.com/GiselaHurtado/GiselaHurtado/assets/168914320/21132869-708d-4c0e-86ff-83394ee8d041)
 
 
 ### Hi there 👋 I´m Gisela S. Hurtado 🧡
