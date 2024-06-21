@@ -1,4 +1,6 @@
-![Header](./your-header-image-name.png)
+
+![github-header-image](https://github.com/GiselaHurtado/GiselaHurtado/assets/168914320/a58b4910-883d-4f82-bb9f-0966eff86cdc)
+
 
 
 ### Hi there 👋 I´m Gisela S. Hurtado 🧡
