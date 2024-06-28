@@ -2,16 +2,16 @@
 ![github-header-image (2)](https://github.com/GiselaHurtado/GiselaHurtado/assets/168914320/21132869-708d-4c0e-86ff-83394ee8d041)
 
 
-### Hi there 👋 I´m Gisela S. Hurtado 🧡
+### Hi there <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Hand%20gestures/Waving%20Hand.png" alt="Waving Hand" width="25" height="25" /> I´m Gisela S. Hurtado <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Smilies/Yellow%20Heart.png" alt="Yellow Heart" width="25" height="25" /> <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/People/Woman%20Technologist.png" alt="Woman Technologist" width="25" height="25" />
 
-This is my fav Mantra: 
-### ✨ Always lively for new adventures: new homeland, new profession.✨
+This is my fav Mantra:<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Four%20Leaf%20Clover.png" alt="Four Leaf Clover" width="25" height="25" /><img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Activities/Trophy.png" alt="Trophy" width="25" height="25" />
+### ✨ Always lively for new adventures: new homeland, new profession.✨<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Activities/Sparkles.png" alt="Sparkles" width="25" height="25" />
 In Argentina I graduated as a Psychologist 🧠
 Currently, in Spain I am actively participating in a Full Stack development Bootcamp with Factoria F5 (850 hours.) 🥰 ✨
 
 
 # 💫 About Me:
-👋 Hi, I’m @GiselaHurtado<br>👀 I’m interested in software development and the IT world.<br>🌱 I’m currently learning full stack web development and I love it!<br>💞️ I’m looking to collaborate on interesting full stack web developer projects.<br>📫 How to reach me by linkedin https://l1nk.dev/6RKZZ<br>😄 Pronouns: her<br>⚡ Fun fact: Did you know that bees are able to recognize human faces? One study showed that bees can learn and remember facial patterns, even distinguishing between different expressions. 🐝👀💥🤯<br>
+👋 Hi, I’m @GiselaHurtado<br>👀 I’m interested in software development and the IT world.<br>🌱 I’m currently learning full stack web development and I love it!<br>💞️ I’m looking to collaborate on interesting full stack web developer projects.<br>📫 How to reach me by linkedin https://l1nk.dev/6RKZZ<br>😄 Pronouns: her<br>⚡ Fun fact: Did you know that bees are able to recognize human faces? One study showed that bees can learn and remember facial patterns, even distinguishing between different expressions. 🐝💥🤯<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Honeybee.png" alt="Honeybee" width="25" height="25" />
 
 
 ## 🌐 Socials:
