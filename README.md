@@ -1,6 +1,5 @@
 
-![github-header-image (2)](https://github.com/GiselaHurtado/GiselaHurtado/assets/168914320/21132869-708d-4c0e-86ff-83394ee8d041)
-
+![Black Minimalist Motivation Quote LinkedIn Banner (5)](https://github.com/user-attachments/assets/9f561108-327b-4e76-ac93-6e81ff77e1bd)
 
 ### Hi there <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Hand%20gestures/Waving%20Hand.png" alt="Waving Hand" width="25" height="25" /> I´m Gisela S. Hurtado <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Smilies/Yellow%20Heart.png" alt="Yellow Heart" width="25" height="25" /> <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/People/Woman%20Technologist.png" alt="Woman Technologist" width="25" height="25" />
 
