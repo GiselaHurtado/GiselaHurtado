@@ -6,11 +6,11 @@
 This is my fav Mantra:<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Four%20Leaf%20Clover.png" alt="Four Leaf Clover" width="25" height="25" /><img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Activities/Trophy.png" alt="Trophy" width="25" height="25" />
 ### ✨ Always lively for new adventures: new homeland, new profession.✨<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Activities/Sparkles.png" alt="Sparkles" width="25" height="25" />
 In Argentina I graduated as a Psychologist 🧠
-Currently, in Spain I am actively participating in a Full Stack development Bootcamp with Factoria F5 (850 hours.) 🥰 ✨
+Currently, in Spain I am actively participating in a Java development Bootcamp 🥰 ✨
 
 
 # 💫 About Me:
-👋 Hi, I’m @GiselaHurtado<br>👀 I’m interested in software development and the IT world.<br>🌱 I’m currently learning full stack web development and I love it!<br>💞️ I’m looking to collaborate on interesting full stack web developer projects.<br>📫 How to reach me by linkedin https://l1nk.dev/6RKZZ<br>😄 Pronouns: her<br>⚡ Fun fact: Did you know that bees are able to recognize human faces? One study showed that bees can learn and remember facial patterns, even distinguishing between different expressions. 🐝💥🤯<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Honeybee.png" alt="Honeybee" width="25" height="25" />
+👋 Hi, I’m @GiselaHurtado<br>👀 I’m interested in software development and the IT world.<br>🌱<br>💞️ I’m looking to collaborate on interesting full stack web developer projects.<br>📫 How to reach me by linkedin https://l1nk.dev/6RKZZ<br>😄 Pronouns: her<br>⚡ Fun fact: Did you know that bees are able to recognize human faces? One study showed that bees can learn and remember facial patterns, even distinguishing between different expressions. 🐝💥🤯<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Honeybee.png" alt="Honeybee" width="25" height="25" />
 
 
 ## 🌐 Socials:
