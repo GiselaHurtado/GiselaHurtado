@@ -1,7 +1,8 @@
-![Black Minimalist Motivation Quote LinkedIn Banner (6)](https://github.com/user-attachments/assets/2dd146e8-a53a-446d-8e69-2b3d426de53f)
 
+![portada linkedin](https://github.com/user-attachments/assets/bc113ffb-3991-4227-9c06-e89149b7ab17)
 
-### Hi there <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Hand%20gestures/Waving%20Hand.png" alt="Waving Hand" width="25" height="25" /> I´m Gisela S. Hurtado <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Smilies/Yellow%20Heart.png" alt="Yellow Heart" width="25" height="25" /> <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/People/Woman%20Technologist.png" alt="Woman Technologist" width="25" height="25" />
+### Hi there <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-F
+luent-Emojis/master/Emojis/Hand%20gestures/Waving%20Hand.png" alt="Waving Hand" width="25" height="25" /> I´m Gisela S. Hurtado <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Smilies/Yellow%20Heart.png" alt="Yellow Heart" width="25" height="25" /> <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/People/Woman%20Technologist.png" alt="Woman Technologist" width="25" height="25" />
 
 This is my fav Mantra:<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Four%20Leaf%20Clover.png" alt="Four Leaf Clover" width="25" height="25" /><img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Activities/Trophy.png" alt="Trophy" width="25" height="25" />
 ### ✨ Always lively for new adventures: new homeland, new profession.✨<img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Activities/Sparkles.png" alt="Sparkles" width="25" height="25" />
